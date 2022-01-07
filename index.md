@@ -27,6 +27,6 @@
      经过实践我会发图了
 
      ![ea2f1c5fd5f3991635a73c7c82385c5](https://s2.loli.net/2022/01/06/GM3WEV1TDAfsBar.png)
+这个软件真的很好用，其下载链接是[typora](http://typora.io/?_blank)
 
-这个软件真的很好用，它的下载链接是[typora](http://typora.io/
 这次我要让他在微信里面打开
